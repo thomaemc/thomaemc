@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @thomaemc
+- 👀 I’m interested in pretty mush everything
+- 🌱 I’m currently learning github
+- 💞️ I’m looking to collaborate on nothing yet
+- 📫 How to reach me? message i guess
